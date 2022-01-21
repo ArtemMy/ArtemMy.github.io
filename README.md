@@ -1,2 +1,0 @@
-# ArtemMy.github.io
-MAM
